@@ -1,1 +1,1 @@
-i dont know just trying ot figure out what the fuck i am doing
+This the one with the latest feature before i fucked  up anything
